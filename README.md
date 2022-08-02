@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Technopreneurship**
 
-- 💬 Ask me about **Network, Device, Forensik,Linux, & others**
+- 💬 Ask me about **Network, Device, Forensik, Linux, & others**
 
 - 📫 Reach me on email **adelspaces@gmail.com**
 
