@@ -5,13 +5,13 @@
 
 - 🌱 I’m currently learning **Technopreneurship**
 
-- 👨‍💻 All of my projects are available at [adelia.great.site.net](adelia.great.site.net)
-
-- 📝 I regularly write articles on [www.blogger.com](www.blogger.com)
-
 - 💬 Ask me about **Network, Device, Forensik,Linux, & others**
 
 - 📫 Reach me on email **adelspaces@gmail.com**
+
+- 👨‍💻 Interact me via [telegram](t.me/rahmdellia)
+
+- 📝 I regularly write articles on [www.blogger.com](www.blogger.com)
 
 - 📄 Know about my experiences [instagram.com/rahmdellia](instagram.com/rahmdellia)
 
