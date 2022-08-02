@@ -15,7 +15,7 @@
 
 - 📄 Know about my experiences on [my story Instagram](instagram.com/rahmdellia)
 
-- ⚡ Fun fact **I like money**
+- ⚡ Fun fact, **I like money**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
