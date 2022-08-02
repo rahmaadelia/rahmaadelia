@@ -9,11 +9,11 @@
 
 - 📫 Reach me on email **adelspaces@gmail.com**
 
-- 👨‍💻 Interact me via [telegram](t.me/rahmdellia)
+- 👨‍💻 Interact to collaborate with me via [Telegram](t.me/rahmdellia)
 
-- 📝 I regularly write articles on [www.blogger.com](www.blogger.com)
+- 📝 I regularly write articles on [my own Blog](www.blogger.com)
 
-- 📄 Know about my experiences [instagram.com/rahmdellia](instagram.com/rahmdellia)
+- 📄 Know about my experiences on [my story Instagram](instagram.com/rahmdellia)
 
 - ⚡ Fun fact **I like money**
 
