@@ -11,7 +11,7 @@
 
 - 👨‍💻 Interact to collaborate with me via [Telegram](t.me/rahmdellia)
 
-- 📝 I regularly write articles on [my own Blog](www.blogger.com)
+- 📝 I regularly write articles on [my Blog site](www.blogger.com)
 
 - 📄 Know about my experiences on [my story Instagram](instagram.com/rahmdellia)
 
