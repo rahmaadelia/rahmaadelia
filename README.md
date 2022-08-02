@@ -11,9 +11,9 @@
 
 - 👨‍💻 Interact to collaborate with me via [Telegram](t.me/rahmdellia)
 
-- 📝 I regularly write articles on [my Blog site](www.blogger.com)
+- 📝 I regularly write articles on [my Blog Site](www.blogger.com)
 
-- 📄 Know about my experiences on [my story Instagram](instagram.com/rahmdellia)
+- 📄 Know about my experiences on [Story Instagram](instagram.com/rahmdellia)
 
 - ⚡ Fun fact, **I like money**
 
