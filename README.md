@@ -15,7 +15,7 @@
 
 - 📄 Know about my experiences [instagram.com/rahmdellia](instagram.com/rahmdellia)
 
-- ⚡ Fun fact **I look cold, but actually friendly**
+- ⚡ Fun fact **I like money**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
