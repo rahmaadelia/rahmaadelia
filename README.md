@@ -1,5 +1,5 @@
-<h1 align="left">Hello 👋, I'm Adelia</h1>
-<h3 align="left">A student and teacher InfoTech</h3>
+<h1 align="left">Welcome</h1>
+<h3 align="left"></h3>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=rahmaadelia&label=Profile%20views&color=0e75b6&style=flat" alt="rahmaadelia" /> </p>
 
