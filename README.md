@@ -1,21 +1,11 @@
 <h1 align="left">Welcome</h1>
-<h3 align="left"></h3>
+<h3 align="left">it's my new account</h3>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=rahmaadelia&label=Profile%20views&color=0e75b6&style=flat" alt="rahmaadelia" /> </p>
 
-- 🌱 I’m currently learning **Technopreneurship**
-
-- 💬 Ask me about **Network, Device, Forensik, Linux, & others**
-
-- 📫 Reach me on email **adelspaces@gmail.com**
-
-- 👨‍💻 Interact to collaborate with me via [Telegram](t.me/rahmdellia)
-
-- 📝 I regularly write articles on [my Blog Site](www.blogger.com)
-
-- 📄 Know about my experiences on [Story Instagram](instagram.com/rahmdellia)
-
-- ⚡ Fun fact, **I like money**
+- Student of UIR (Universitas Islam Riau)
+- Teknik Informatika
+- 19 y.o
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
